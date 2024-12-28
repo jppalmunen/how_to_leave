@@ -16,3 +16,12 @@ The playlist is available at:
 https://music.youtube.com/playlist?list=PLdCkbW2h9RVcUECavyR0YEWouxJCktkYq&si=tniwLAEwG41ukATy
 
 I'm building this publicly in this evening if someone is having the same problem.
+
+
+1st Step
+
+I shave my face and head. I want the world to see my all scarfs.
+
+Here's a pic.
+
+Everyone who knows me, knows that who ever tries to enter here will die.
